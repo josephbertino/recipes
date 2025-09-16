@@ -1,6 +1,4 @@
-Here's a super simple and tasty **Cranberry Brown Sugar Compote** recipe you can make in about 15–20 minutes:
-
-### **Cranberry Brown Sugar Compote**
+# Cranberry Brown Sugar Compote
 
 **Ingredients:**
 
