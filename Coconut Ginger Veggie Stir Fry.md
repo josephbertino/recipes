@@ -2,27 +2,26 @@
 
 **Ingredients:**
 
-2 tbsp ghee
-1 large onion, sliced
-3 cloves garlic, minced
-2 tbsp fresh ginger, grated
-1-2 bell pepper, sliced
-1 cup broccoli florets
-1 cup snap peas or snow peas
-1 medium carrot, julienned
-1-2 zucchini, sliced
-3/4 cup coconut milk
-3 tbsp unsweetened coconut flakes
-2 tbsp low-sodium soy sauce or tamari
-1 tbsp rice vinegar
-1 tsp sesame oil
+- 2 tbsp ghee
+- 1 large onion, sliced
+- 3 cloves garlic, minced
+- 2 tbsp fresh ginger, grated
+- 1-2 bell pepper, sliced
+- 1 cup broccoli florets
+- 1 cup snap peas or snow peas
+- 1 medium carrot, julienned
+- 1-2 zucchini, sliced
+- 3/4 cup coconut milk
+- 3 tbsp unsweetened coconut flakes
+- 2 tbsp low-sodium soy sauce or tamari
+- 1 tbsp rice vinegar
+- 1 tsp sesame oil
 
 Optional:
-1/2 to 3/4 cup fresh Thai basil leaves (torn into pieces)
-Red pepper flakes to taste
-Fresh cilantro for garnish
-Toasted sesame seeds for garnish
-
+- 1/2 to 3/4 cup fresh Thai basil leaves (torn into pieces)
+- Red pepper flakes to taste
+- Fresh cilantro for garnish
+- Toasted sesame seeds for garnish
 
 **Instructions:**
 1. Heat coconut oil in a large wok or skillet over medium-high heat.
