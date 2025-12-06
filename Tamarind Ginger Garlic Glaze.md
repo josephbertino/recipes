@@ -1,8 +1,8 @@
 # Tamarind Glaze
 
-**Prep Time:** 5 minutes  
-**Cook Time:** 8 minutes  
-**Total Time:** 13 minutes  
+**Prep Time:** 5 minutes
+**Cook Time:** 8 minutes
+**Total Time:** 13 minutes
 **Yield:** About 1/4 cup
 
 ## Ingredients
